@@ -87,6 +87,6 @@ Don’t forget to bookmark us and follow the latest juicy timelines.
 
 ---
 
-🔗 **Find Your Perfect Match Today!**  
+🔗 [**Find Your Perfect Match Today!**](https://redirectingirl.netlify.app/) 
 No red carpet needed — just click, swipe, and connect.
 
