@@ -72,7 +72,7 @@ Relationships in the spotlight aren’t easy, but real love — even for non-cel
 👉 **Find Your Perfect Match Today!**  
 Whether you’re into serious connections or exploring open dating, there’s a match for everyone.
 
-Try the **best free dating sites for serious relationships** and start your journey.  
+Try the [**best free dating sites for serious relationships**](https://redirectingirl.netlify.app/) and start your journey.  
 
 ✨ *Because real love deserves a shot — even outside Hollywood.*
 
